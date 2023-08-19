@@ -3,7 +3,4 @@
 
 > I lose more brain cells everyday with peope
 
-- Using Free Obsfucators and not changing thigs about them 
-Or making them better before using
-
-- Using Net Reactor or Obfuscarfajiopwijopnawf ISTG 
+- This is a repo of some of the 100% NON PASTED " VRCHAT CLIENTS " I have either Fully deobfsucated or Made more readable for people 
